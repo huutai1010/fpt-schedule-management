@@ -1,2 +1,2 @@
 # fpt-schedule-management
-# Chào các bạn
+# Chào các bạn 😍 😍 😍
